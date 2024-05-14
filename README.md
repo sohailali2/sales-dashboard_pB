@@ -1,1 +1,1 @@
-https://github.com/sohailali2/sales-dashboard_pB/assets/49651664/0fe6ef46-3d7f-4d79-8cca-25822df50dfd
+![Sales_deshboard_ss](https://github.com/sohailali2/sales-dashboard_pB/assets/49651664/9cf45f5a-08db-4912-a49f-debafac0c6c9)
